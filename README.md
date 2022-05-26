@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sim
 - 👀 I'm interested in technology and digital content creation
-- 🌱 I'm currently in high school and working with @salycosta_l
+- 🌱 I'm currently in high school and working with https://instagram.com/salycosta_
 - 💞️ My goals are to be part of companies like Google & Apple and to be a moderator for great content creators.
 - 💜 Socials: https://instagram.com/xsiim_ // https://twitter.com/xsiim_1
 - 📫 How contact me? Discord: Sim#3487 // Mail: contact.xsim@gmail.com  
